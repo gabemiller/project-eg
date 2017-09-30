@@ -1,0 +1,19 @@
+<p><strong>A projekt célja:</strong> új kommunikációs tér létrehozása. E kommunikációs környezet felöleli a nyugdíjas-nyugdíjas, öreg-fiatal, szervezet-tagság, kormányzat-állampolgár, hivatal-egyén kapcsolatát.</p>
+<p>Ennek a szíve Pacsai János elnök által kidolgozott tíz pont. Ennek szellemében való gondolkodás, tevékenykedés, együttműködés a nyugdíjasok, idősek, egyének, szervezetek érdekében adja ezt az új környezetet, ennek elfogadása az együttműködés alapja.</p>
+
+<p>Szerkezeti megvalósítása. A Szimfónia Nyugdíjas Egyesület létrehozott egy országos hatókőrű irodát. Az Iroda égisze alatt működik legalább húsz területi képviselő (összekötő) melyek összességükben lefedni szándékoznak az ország egész területét.</p>
+<p>Az összekötők működési területükön feltérképezik a nyugdíjas egyesületeket, első helyen a nem regisztrált, jogi személyiséggel nem rendelkező szervezeteket. Ezekkel megismertetik az Irodát, annak célkitűzéseit, a tíz pont filozófiáját. Együttműködést ajánlanak ezen szervezeteknek az Irodával. Ajánlják az Iroda szolgáltatásait, rendezvényeit, előadásait. Közös gondolkodásra, tevékenységre buzdítják őket mind az Irodával, mind a közelükben lévő nyugdíjas szervezetekkel.</p>
+<p>A helyi gondokat, problémákat visszacsatolják az Iroda felé, aki továbbítja ezeket a mindenkori hivatalos szerveknek. Az iroda az összekötök véleményét összegzi és hivatalos álláspontként továbbítja. Az Iroda hatással kíván lenni ezen szerveknél a civil idősügyi szerveződések jogos igényeinek, gondjainak, problémáinak országos szintű kezelésében.</p>
+
+<p>A civil szerveződések mellet kapcsolatépítés a bejegyzett szervezetekkel, önkormányzatokkal, egyházakkal a tíz pont elfogadása esetén. Ezekkel együttműködési megállapodás kötése, jó kapcsolat kiépítése.</p>
+
+<p>További cél, hogy a kapcsolatok az együttműködésben ne álljanak meg a civil szférában, hanem terjedjenek ki a hivatalos szervek felé is, mindenkor a tíz pontot alapnak tekintve.</p>
+
+<p>Az Iroda önmagában sem, de különösen a Lépésről-lépésre projekt megvalósításában nem szándékozik irányító, mások felett álló, felülről megmondó szerv lenni. Jó szándékú, a nyugdíjasok érdekében tevékenykedő, az ő érdeküket szolgáló szervezet szándékszik maradni. Minden partnerét, legyen az egy magánszemély, civil szerveződés, vagy bejegyzett jogi személy egyenlő félnek tekinti. Senkivel nem kíván alá-főlé rendelt viszonyba kerülni.</p>
+
+<p>Az Iroda a távlatokban e lépésről-lépésre projektet szeretné az egész Kárpát-medence időskorú társadalmának bemutatni, hogy újabb, határok feletti kapocs legyen Európa e zárt földrajzi egységében élő nyugdíjasok és az őket szolgáló, segítő, támogató, valamint az idős emberek bölcsességét "élvező" emberek között.</p>
+
+<p>Az Iroda e projektjével keresi azon támogatókat - és ezen keresésre buzdítja kapcsolattartóit is - akik magukénak érzik a tíz pont szellemiségét, hogy az idős korosztály érdekében támogassák a Lépésről-lépésre projektet.</p>
+<p>A támogatást az Egyesület minden jószándékú embertől, szervezettől, cégtől elfogadja, de ezért semmilyen elköteleződést nem vállal, nem ajánl fel. Az adott-kapott támogatás nem az Egyesületet, hanem a nyugdíjasok érdekeit szolgálja.</p>
+
+<p>E projekt működtetése, hosszú távon remélhetőleg aktivizálja a nyugdíjasok azon rétegét, akik most apátiában, reménytelennek látva életüket, visszahúzódva, a közösségtől elzárkózva élik mindennapjaikat. Segíti azokat, akik nyugdíjba készülődnek, s keresik a fogódzókat, az új önkéntes munkalehetőségeket, számukra ez lesz a következő lépés. A projektet kidolgozók reménye és szándéka szerint nő azon aktív nyugdíjasok száma, kik elsősorban egymásért, a másikért, saját jobb testi-lelki közérzetükért, életükért tevékenykednek majdan.</p>
